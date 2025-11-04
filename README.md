@@ -1,1 +1,1 @@
-https://suryakartheek.github.io/appointment/
+https://suryakartheek.github.io/Appointment-Medical/
